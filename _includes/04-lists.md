@@ -1,15 +1,15 @@
 List of my favorite things:
 
-😄
+- 😄
 
-🐱
+- 🐱
 
-👍
+- 👍
 
-💑
+- 💑
 
 In Order these are my favorite businessman:
 
-Ratan Tata
+- Ratan Tata
 
-Ajim Premji
+- Ajim Premji
